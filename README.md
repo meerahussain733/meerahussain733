@@ -5,6 +5,6 @@ I'm Meera Hussain Morrimekala
 🧑🏻‍💻 Aspiring **Machine Learning Engineer** 
 🧠 Passionate about building models that see and create.  
 
-📫 Reach me at **meerahussainmorrimekala@gmail.com**  
+📫 Reach me at **meerahus@buffalo.edu**  
 🔗 [LinkedIn](https://www.linkedin.com/in/meerahussainmorrimekala/)
 
