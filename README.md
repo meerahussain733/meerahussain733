@@ -25,7 +25,7 @@ My work focuses on building solutions that can **see, reason, retrieve, and gene
 
 ### 📫 Connect with Me
 - **Email:** mmeerahussain2002@gmail.com  
-- **LinkedIn:** [meerahussainmorrimekala](https://www.linkedin.com/in/meerahussainmorrimekala/)  
+- **LinkedIn:** [meerahussainmorrimekala](https://www.linkedin.com/in/meera-hussain-morrimekala/)  
 
 ---
 ⭐ Exploring AI, building projects, and growing one step at a time.
